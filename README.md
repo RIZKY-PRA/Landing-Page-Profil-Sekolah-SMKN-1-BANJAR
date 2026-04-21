@@ -1,1 +1,1 @@
-# Landing-Page-Profil-Sekolah-SMKN-1-BANJAR
+# Landing-Page-Profil-Sekolah
